@@ -1,3 +1,10 @@
+[Certificate1.pdf](https://github.com/ProssieN/Prossie-Nalukenge/files/11033020/Certificate1.pdf)
+[Certificate2.pdf](https://github.com/ProssieN/Prossie-Nalukenge/files/11033022/Certificate2.pdf)
+[Certificate3.pdf](https://github.com/ProssieN/Prossie-Nalukenge/files/11033024/Certificate3.pdf)
+[Certificate4.pdf](https://github.com/ProssieN/Prossie-Nalukenge/files/11033026/Certificate4.pdf)
+[MScFE Diploma.pdf](https://github.com/ProssieN/Prossie-Nalukenge/files/11033029/MScFE.Diploma.pdf)
+[MSCFE.pdf](https://github.com/ProssieN/Prossie-Nalukenge/files/11033031/MSCFE.pdf)
+![MSCFE-1](https://user-images.githubusercontent.com/107688226/226726204-60d6b882-f790-4f5c-979d-f0925d0d3170.jpg)
 # Prossie-Nalukenge
 
 I am a Female Ugandan, I hold a Bachelor's Degree in Secretarial Studies from Makerere University and a MSC in Financial Engineering from World Quant University and Just completed a Data Science and AI course from Tech4Dev under the Womenster fellowship. 
